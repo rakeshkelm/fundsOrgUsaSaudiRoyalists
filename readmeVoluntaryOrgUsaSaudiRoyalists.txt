@@ -1,26 +1,17 @@
-# Provide resources
+# voluntaryOrgUsaSaudiRoyalist
+Voluntary Organizations, USA (aka United slave america) - Saudi Royalists (Winning)
 
-Provide resources - from, Rakesh Kukatla
+Running on partial establishment interest model.
 
-Independent interest and Militia (Suc-king)
+Reporting to full establishment interest - Mohammed Saud, Kingdom of Saudi Arabia.
 
-at htps://provideResources.media.militia
+at htps://voluntaryorgusasaudiroyalists.media.militia
+
+then - Check Voluntary Organizations USA (aka United slave america)
+
+at https://github.com/rakeshkelm/voluntaryorgusasaudiroyalists
+
+then - Check out, volunteerOrganizationServiceIndividualsCapitalist.txt
 
 
-then - Provide resources 
 
-at https://github.com/rakeshkelm/provideresources (actively updated)
-
-then - Check out, emailGatesFoundationMarkSuzman.txt
-
-For more details,
-
-Check, Earth Backup Notes
-
-at https://github.com/rakeshkelm/earthbackupnotes
-
-then - Check out, earthbackupnotes.txt
-
-Build and operationalize a planet.
-
-Expand and update Independent interest.

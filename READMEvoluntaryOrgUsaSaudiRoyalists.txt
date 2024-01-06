@@ -11,7 +11,7 @@ then - Check Voluntary Organizations USA (aka United slave america)
 
 at https://github.com/rakeshkelm/voluntaryorgusasaudiroyalists
 
-then - Check out, voluntaryOrganizations.txt
+then - Check out, volunteerOrganizationServiceIndividualsCapitalist.txt
 
 
 
